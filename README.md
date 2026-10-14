@@ -216,4 +216,4 @@ Iron Blade: Medieval Legends RPG is available as a full free version with all fe
 Dive into the action of **Iron Blade: Medieval Legends RPG** today! Download now and embark on your epic journey in the medieval world!
 
 ---
-**Last updated:** 2026-10-13 21:40:45 UTC
+**Last updated:** 2026-10-14 00:47:00 UTC
